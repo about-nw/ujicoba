@@ -1,2 +1,0 @@
-# ujicoba
-upload portofolio
